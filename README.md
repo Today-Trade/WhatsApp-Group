@@ -4,7 +4,7 @@
 
 <img align='right' src='https://media.giphy.com/media/Wsju5zAb5kcOfxJV9i/giphy.gif' width='300" '>
 
-We at TradeToday.in . We have a traffic of 10K users per month currently.
+We at TodayTrade.in . We have a traffic of 10K users per month currently.
 
 Quick Money Making | Lusting for Profit | Green Graph Player | Want to collaborate ? Let's get in touch. 
 
