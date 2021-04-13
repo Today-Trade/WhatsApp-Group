@@ -1,5 +1,4 @@
 # WhatsApp-Group
-Join Our WhatsApp Group For daily Updates On Trading And Investment
 
 <h2> नमस्ते, Investors and Traders <img src="https://raw.githubusercontent.com/ABSphreak/ABSphreak/master/gifs/Hi.gif" width="30px"></h2>
 
@@ -20,5 +19,9 @@ Quick Money Making | Lusting for Profit | Green Graph Player | Want to collabora
  📫 How to reach Us: [Today Trade](https://www.instagram.com/todaytrade.in/)
  
  ⚡ Fun fact: Market Just Transfers Money From Impatient Ones to Patient ones. :-P
+ 
+ <h2>Join Our WhatsApp Group For daily Updates On Trading And Investment</h2>
+ 
+ Follow this link to join my WhatsApp group: https://chat.whatsapp.com/KVl9sc22DYs54P2TOFVz8N
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=Today-Trade.Today-Trade)
